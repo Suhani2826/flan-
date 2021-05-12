@@ -1,1 +1,1 @@
-# flan-
+This silken, caramel covered custard dessert came to Latin America from Spain and is very popular in Mexico today. Simple to make with just 6 ingredients - and easy to make ahead, which makes it perfect for entertaining. Like most custard, flan is baked in a baño maría, or“water bath until gently set to achieve its signature soft, creamy texture. It then needs to be cooled to room temperature and chilled overnight. For that reason, plan on making your flan a day in advance to serving.
